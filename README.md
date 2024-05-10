@@ -1,0 +1,1 @@
+# Yapay_Zeka_Efekt
